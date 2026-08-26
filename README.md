@@ -67,6 +67,6 @@
 
 如果你在做有意思的事，或者只是想聊聊方向，欢迎联系。
 
-- **Email**：`your@email.com`
-- **微信**：`your_wechat_id`
+- **Email**：[zhuang9729@gmail.com](mailto:zhuang9729@gmail.com)
+- **微信**：`19874502075`
 - **LinkedIn**：[Liv Zhuang](https://www.linkedin.com/in/liv-zhuang-a77837348/)
